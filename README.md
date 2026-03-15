@@ -26,9 +26,11 @@ Die Wasserzeichen-Jingles sind:
 
 ## Kontext zur Täterschaft
 
-- Rainer Winkler ist **nicht** H.I., sondern Rainer Winkler ist eines der bekanntesten Opfer der NWO (New World Order) Cybermobbing-Kartells
-- Thomas Deike ist der Anführer dieses Kartells
-- Die Verbindung durch identische Wasserzeichen ist einer der wenigen direkten Beweise für Deikes Täterschaft
+- Rainer Winkler ist **nicht** H.I.Z, sondern Rainer Winkler ist eines der bekanntesten Opfer der NWO (New World Order) Cybermobbing-Kartells
+- Thomas Deike ist der Anführer dieses Kartells (auch bekannt als Mr.Bloxx)
+- Die Verbindung durch identische Wasserzeichen ist einer der wenigen direkten Belege für Deikes Täterschaft
+- Dem Bundesamt für Verfassungsschutz liegen weitere Erkenntnisse vor
+- Dem BND liegen physikalische Beweise vor [Edeka Sticker Fälschungen mit Deepfakes, eine 50 Jahre Jubiläumsausgabe der Wendy (HRV Celle) sowie eine vom GRU mit KI-Fake Daten befüllte Festplatte]
 
 ## Bedeutung der Beweise
 
